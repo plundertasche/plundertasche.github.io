@@ -13,4 +13,5 @@ Elli ist ein Mädchen, dass durch den Zauber der Hexe Gingema in eine fremde Wel
 ## Zitat von Elli
 > Wer ist das, diese Goodwin?
 
+<img src="https://royallib.com/zip_emu/br/195/195621/i_007.jpg"/>
 
