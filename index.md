@@ -10,5 +10,7 @@ Elli ist ein Mädchen, dass durch den Zauber der Hexe Gingema in eine fremde Wel
 * klug
 * freundlich
 
+## Zitat von Elli
+"Wer ist das, diese Goodwin?"
 
 
